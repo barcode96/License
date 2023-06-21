@@ -1,3 +1,1 @@
 dlswmdxptmxm
-
-barcode
